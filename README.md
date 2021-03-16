@@ -1,4 +1,5 @@
 
-https://user-images.githubusercontent.com/52466957/111364747-642c0e00-8670-11eb-8f4d-4249b34582e2.mp4
+![CodePlayData_README (1)](https://user-images.githubusercontent.com/52466957/111366168-f08b0080-8671-11eb-9a69-684fa89847d6.gif)
+
 
 
